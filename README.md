@@ -1,5 +1,5 @@
-- 👋 Hi, I’m @ENzN3kou
-- 👀 Estou interessado em fazer jogos, sprites e musica.
+- 👋 Eu sou o Enzo M. M.
+- 👀 Estou interessado em fazer jogos e sprites.assim como musica.
 - 🌱 Estou aprendendo a como desenhar e programar ...
 
-![](https://media1.tenor.com/m/6PpVOxFBW8sAAAAC/aizawa-shouta-aizawa.gif)
+![](https://tenor.com/pt-BR/view/aizawa-mha-my-hero-academia-gif-22669642)
